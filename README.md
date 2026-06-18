@@ -46,12 +46,28 @@
 [ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/22648/viewer)
 <br>
 <br>
-### 「 	わたしが直す！の巻」　1984年 / 38巻5話・第362話
+### 「わたしが直す！の巻」　1984年 / 38巻5話・第362話
 - 貸しお父さんサービスが登場
 - レンタル彼氏などを予想
   
 [ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec45867)
 
 [ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/22711/viewer)
+<br>
+<br>
+### 「仕事さがし！の巻」　1984年 / 42巻8話・第405話
+- えらいやつってのは始めからワルなんかにならねぇの!正直で正しい人間がえらいに決まってるだろ!
+- ネットでも人気な名言
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec46120)
+
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/23931/viewer)
+<br>
+<br>
+### 「新名物・屋台銀座の巻」　1985年 / 45巻6話・第433話
+- パチンコや1000円での散髪を提供する屋台が登場
+- 1000円カットを予想
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec46279)
+
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/23959/viewer)
 <br>
 <br>

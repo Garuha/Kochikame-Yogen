@@ -58,7 +58,7 @@
 ### 「仕事さがし！の巻」　1984年 / 42巻8話・第405話
 - えらいやつってのは始めからワルなんかにならねぇの!正直で正しい人間がえらいに決まってるだろ!
 - ネットでも人気な名言
-- 
+
 [ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec46120)
 
 [ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/23931/viewer)
@@ -67,7 +67,7 @@
 ### 「新名物・屋台銀座の巻」　1985年 / 45巻6話・第433話
 - パチンコや1000円での散髪を提供する屋台が登場
 - 1000円カットを予想
-- 
+
 [ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec46279)
 
 [ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/23959/viewer)
@@ -76,23 +76,25 @@
 ### 「よく学びよく遊べ！の巻」　1985年 / 46巻5話・第442話
 - 勉強、スポーツ、学校すべてを完璧にこなせるように教育される子どもが登場
 - テレビの全録レコーダーや倍速視聴を予想
-- 
+
 [ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec46332)
 
 [ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/23968/viewer)
 <br>
 <br>
-### 「両さんのカメラマン入門の巻」　1986年 / 49巻10話・第447話
-- バレットタイムと呼ばれる撮影方法を両さんが提言
-- 数十台のカメラを円形に並べて撮影する“マシンガン撮影”を生み出した 映画「マトリックス」の監督・ウォシャウスキー兄弟は、そのヒントを「日本のコミックから得た」と語っていたとの事（引用：[こち亀データベース](https://maxaydar.backdrop.jp/kame/episode/46-50.html)）
-[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec46517)
+### 「おせんべい屋両さんの巻」　1986年 / 50巻8話・第485話
+- 若者向けのせんべいとしてWせんべいバーガーを両さんが提言
+- ライスバーガーに近い概念を予想。なお実際の最初のライスバーガーは掲載から1年後の1987年の[モスバーガー](https://www.mos.jp/omoi/15/)
 
-[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/24003/viewer)
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec46561)
+
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/24011/viewer)
 <br>
 <br>
-### 「両さんのカメラマン入門の巻」　1986年 / 49巻10話・第447話
-- バレットタイムと呼ばれる撮影方法を両さんが提言
-- 数十台のカメラを円形に並べて撮影する“マシンガン撮影”を生み出した 映画「マトリックス」の監督・ウォシャウスキー兄弟は、そのヒントを「日本のコミックから得た」と語っていたとの事（引用：[こち亀データベース](https://maxaydar.backdrop.jp/kame/episode/46-50.html)）
+### 「おせんべい屋両さんの巻」　1986年 / 50巻8話・第485話
+- 若者向けのせんべいとしてWせんべいバーガーを両さんが提言
+- ライスバーガーに近い概念を予想。なお実際の最初のライスバーガーは掲載から1年後の1987年の[モスバーガー](https://www.mos.jp/omoi/15/)
+
 [ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec46517)
 
 [ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/24003/viewer)

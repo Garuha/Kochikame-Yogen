@@ -46,12 +46,12 @@
 [ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/22648/viewer)
 <br>
 <br>
-### 「舞混（マイコン）おじさんの巻」　1982年 / 32巻2話・第299話
-- コンピュータですべての農作業を自動化した農家が登場
-- アグリテックを予想
+### 「 	わたしが直す！の巻」　1984年 / 38巻5話・第362話
+- 貸しお父さんサービスが登場
+- レンタル彼氏などを予想
   
-[ジャンププラスで読む]()
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec45867)
 
-[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/22648/viewer)
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/22711/viewer)
 <br>
 <br>

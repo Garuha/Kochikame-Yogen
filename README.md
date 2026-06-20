@@ -126,3 +126,20 @@
 [ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/24394/viewer)
 <br>
 <br>
+### 「空き缶回収大作戦！の巻」　1991年 / 59巻4話・第571話
+- 両さんが自販機だけの無人スーパーやプラスチックごみ問題を主張
+- 無人コンビニを予想
+
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec47908)
+
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/26486/viewer)
+<br>
+<br>
+### 「ツェッペリン号発進せよ！の巻」　1992年 / 78巻6話・第763話
+- 両さんがへヘルメット型ゴーグルで操作できるカメラやマジックハンドつきのドローンを発明。
+- FPVドローンを予想
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec50279)
+
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/27048/viewer)
+<br>
+<br>

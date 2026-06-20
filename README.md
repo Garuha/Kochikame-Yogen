@@ -138,6 +138,7 @@
 ### 「ツェッペリン号発進せよ！の巻」　1992年 / 78巻6話・第763話
 - 両さんがへヘルメット型ゴーグルで操作できるカメラやマジックハンドつきのドローンを発明。
 - FPVドローンを予想
+
 [ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec50279)
 
 [ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/27048/viewer)

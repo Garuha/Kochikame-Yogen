@@ -93,7 +93,7 @@
 <br>
 ### 「魔法のテレビの巻」　1987年 / 54巻10話・第527話
 - 特定話者の音声のみで操作できるテレビが登場
-- 現在の音声アシスタント家電を予想。
+- 現在の音声アシスタント家電を予想
 
 [ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec46786)
 
@@ -106,5 +106,23 @@
 [ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec46934)
 
 [ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/24355/viewer)
+<br>
+<br>
+### 「機械仕掛けのオレん家の巻」　1988年 / 57巻5話・第566話
+- 自宅をすべてコンピュータで管理している人が登場
+- スマートハウスやIoT家電を予想
+
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec47028)
+
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/24384/viewer)
+<br>
+<br>
+### 「テレビでこんにちは！の巻」　1990年 / 59巻4話・第571話
+- カメラ付きテレビで同窓会を行うサービスが登場
+- オンライン飲み会を予想
+
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec47053)
+
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/24394/viewer)
 <br>
 <br>

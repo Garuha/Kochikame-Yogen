@@ -74,7 +74,7 @@
 <br>
 <br>
 ### 「よく学びよく遊べ！の巻」　1985年 / 46巻5話・第442話
-- 勉強、スポーツ、学校すべてを完璧にこなせるように教育される子どもが登場
+- 勉強、スポーツ、友人関係すべてを完璧にこなせるように教育される子どもが登場
 - テレビの全録レコーダーや倍速視聴を予想
 
 [ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec46332)
@@ -91,12 +91,20 @@
 [ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/24011/viewer)
 <br>
 <br>
-### 「おせんべい屋両さんの巻」　1986年 / 50巻8話・第485話
-- 若者向けのせんべいとしてWせんべいバーガーを両さんが提言
-- ライスバーガーに近い概念を予想。なお実際の最初のライスバーガーは掲載から1年後の1987年の[モスバーガー](https://www.mos.jp/omoi/15/)
+### 「魔法のテレビの巻」　1987年 / 54巻10話・第527話
+- 特定話者の音声のみで操作できるテレビが登場
+- 現在の音声アシスタント家電を予想。
 
-[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec46517)
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec46786)
 
-[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/24003/viewer)
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/24311/viewer)
+<br>
+<br>
+### 「霊幻両津!!の巻」　1987年 / 57巻5話・第552話
+- 両さんがいろいろな人に乗り移ってやりたい放題する回
+
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec46934)
+
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/24355/viewer)
 <br>
 <br>

@@ -1,5 +1,5 @@
 # Kochikame-Yoge
-こち亀で未来を予想したといわれている話 + 個人的神回のメモ
+こち亀で未来を先取りしたといわれている話 + 個人的神回のメモ
 <br>
 <br>
 ### 「アンコール雪之城の巻」　1982年 / 28巻3話・第260話
@@ -136,11 +136,65 @@
 <br>
 <br>
 ### 「ツェッペリン号発進せよ！の巻」　1992年 / 78巻6話・第763話
-- 両さんがへヘルメット型ゴーグルで操作できるカメラやマジックハンドつきのドローンを発明。
+- 両さんがヘルメット型ゴーグルで操作できるカメラやマジックハンドつきのドローンを発明
 - FPVドローンを予想
 
 [ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec50279)
 
 [ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/27048/viewer)
+<br>
+<br>
+### 「両津流お正月の過ごし方!?の巻」　1993年 / 83巻3話・第810話
+- 両さん、ボルボ、小金丸の3人が本田の働くコンビニで宴会をする話
+- おでんを箸でつつきまわしたり、つばをいれるなどおでんツンツン男を予想
+
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec50609)
+
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/28179/viewer)
+<br>
+<br>
+### 「寿司ロボ・にぎっ太くん！の巻」　1993年 / 84巻7話・第824話
+- 両さんがロボットが握る回転寿司屋で「つばの舞」を披露する話
+- 回転寿司での迷惑動画炎上事案を予想 （いわゆる寿司テロ）
+
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec50739)
+
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/28193/viewer)
+<br>
+<br>
+### 「ハイパー社長！の巻」　1993年 / 85巻1話・第828話
+- 電極親子が遊園地に行く話
+- アトラクションの待ち時間アプリを予想
+
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec50768)
+
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/28197/viewer)
+<br>
+<br>
+### 「クーラー完備!?ニコニコ寮の巻」　1994年 / 90巻7話・第879話
+- 両さんが寮に中古クーラーを取りつける話
+- 携帯移動式クーラーの名のもと、空調服を予想
+
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec51118)
+
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/28253/viewer)
+<br>
+<br>
+### 「電脳ラブストーリーの巻」　1996年 / 98巻1話・第954話
+- 本田が美少女ゲームをプレイする話
+- ソシャゲなどの課金アイテムシステムを予想
+
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec51528)
+
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/29042/viewer)
+<br>
+<br>
+### 「狙え!!賞金首の巻」　1996年 / 98巻6話・第959話
+- 悩んだらまず「生きる」モードに切り替えてからスタートだ!それからどう生きるかを探せばいい!
+- 有名な名言
+
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec51557)
+
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/29047/viewer)
 <br>
 <br>

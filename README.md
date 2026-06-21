@@ -198,3 +198,12 @@
 [ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/29047/viewer)
 <br>
 <br>
+### 「ハイパー小学生Ｄ（ダッシュ）！の巻」　1996年 / 99巻6話・第968話
+- 電極スパークの開発したコンピュータ内蔵学習机が登場
+- パンデミックで一般化したリモート授業やオンラインテスト、倍速授業、能力別カリキュラムの自動作成を予想
+
+[ジャンププラスで読む](https://shonenjumpplus.com/app/viewer/ec51599)
+
+[ゼブラックで読む](https://zebrack-comic.shueisha.co.jp/title/221/chapter/29056/viewer)
+<br>
+<br>
